@@ -6,7 +6,7 @@
 
 百度文库会员vip免费解析下载，百度文库文档下载&复制内容，免下载卷文档/共享文档/vip专享文档等内容复制, 另分享各大平台会员账号（百度网盘、迅雷、爱奇艺、优酷、腾讯视频、哔哩哔哩等）
 
-[http://yemao.vip/wenku?p=qiantu](http://yemao.vip/wenku?utm_source=gh)      
+[http://yemao.vip/wenku](http://yemao.vip/wenku?utm_source=gh)      
    
    
    
